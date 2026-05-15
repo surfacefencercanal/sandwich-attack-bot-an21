@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with advanced Scanner for sandwich attack bot | back-running & pump-detection, the #1 sandwich attack bot. Includes back-running and pump-detection for a
 
 
 
